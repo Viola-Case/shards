@@ -30,3 +30,7 @@ I'm just an indie game developer who appreciates a good story.
 
 #### Lead Artist 
 **Who are you?** (Please feel free to fill this in)
+
+
+[Check out our itch page!](https://viola-case.itch.io/)
+
