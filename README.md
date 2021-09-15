@@ -1,4 +1,4 @@
-# stormlight
+# shards
 Cremming awesome video game in development
 
 
