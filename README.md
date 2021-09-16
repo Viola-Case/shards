@@ -2,7 +2,7 @@
 
 >Viola Case-son-son-Brackeys, Truthless of Unity, wore sweatpants on the day he was to code a king.
 
-## Ok so here's the plan...
+## Ok so here's the plan…
 
 - I'd like to make this an entire Cosmere video game (possibly a series) and get BrandoSando involved either for consultation
 
