@@ -16,7 +16,8 @@
 
 	- Most surgebinding should be pretty easy to do, but some will probably be more difficult.
 
-- The other places I'd like to turn into DLCs because they are less prominent (Elantris is kinda small ngl)
+- The other (shorter and less substantial to the Cosmere) stories I'd like to turn into DLCs because they are less prominent (Elantris is kinda small ngl)
+  - Dawnshard, Edgedancer, and all the other novellas taking place on Roshar should be DLC for the same game
 
 ## Our Team
 
